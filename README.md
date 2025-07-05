@@ -8,7 +8,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://gbs-3wd.pages.dev/>黑料·黑料网</a>
+点击访问：<a href="https://gbs-3wd.pages.dev/">黑料·黑料网</a>
 
 点击访问：<a href="https://gdas.pages.dev/">黑料网独家爆料</a>
 
